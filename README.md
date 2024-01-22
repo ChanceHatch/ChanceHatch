@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChanceHatch 
+- 👀 I’m interested in Data Analytics, and learning aboiut the data field
+- 🌱 I’m currently learning Data Analytics via Coursea
+- 📫 How to reach me Hatch.buisness1
+- 😄 Pronouns: He/Him
